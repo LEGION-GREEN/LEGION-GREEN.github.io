@@ -17,7 +17,13 @@ tags:
 >
 > 
 >
-> 他的个人网站 https://www.siddharthchatterjee.info/
+> [个人网站](https://www.siddharthchatterjee.info/)
+>
+> [twitter](https://twitter.com/sidchat1)
+>
+> [Linkedin](https://www.linkedin.com/in/siddharthchatterjee1un)
+>
+> [UN Website](http://www.un.org.cn/special/ResidentCoordinator.html)
 
 
 
