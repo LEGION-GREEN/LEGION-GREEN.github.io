@@ -25,5 +25,38 @@ tags:
 >
 > [UN Website](http://www.un.org.cn/special/ResidentCoordinator.html)
 
+dignity is key to human life
 
+indignity -- 侮辱
+
+
+
+vaccine -- intellectual gap, speed of science
+
+remarkable potential and efforts in Africa
+
+
+
+inequality, people disabilities
+
+黑色西装白衬衫，底色酒红色细白色宽间距条纹的宽领带，口袋巾是稍鲜艳一点的酒红色，带着红色绿色的领针（和口袋巾在同一侧）
+
+西装侧面是有缝的，方便坐下和走动。
+
+语言顿挫有力，眼神坚定，站姿笔挺，很有精神！
+
+说完话立刻戴上口罩。
+
+## Questions
+
+1. what's your opinion on China-Africa cooperation? in your opinion in which aspect should we cooperate more
+2. Human right issue in China is widely discussed problem. While some western media are talking about forced labor or race genocide clarifying what's your opinion on China human right situations? 
+   - reply from Siddharth Chatterjee
+     - human rights is the core of life
+     - China' contribution on making 1.4b people to a better life
+     - UN is caring about it
+3. how to face COVID19
+   - admire Chinese people's self social discipline
+   - vaccinate
+   - no ideal solution in this public issue
 
