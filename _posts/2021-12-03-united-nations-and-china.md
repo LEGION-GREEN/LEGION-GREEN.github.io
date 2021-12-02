@@ -47,6 +47,28 @@ inequality, people disabilities
 
 说完话立刻戴上口罩。
 
+## China in UN 50th Anniversary
+
+From these poetries, I see the genuine friendship between UN and China.
+
+![](https://LEGION-GREEN.github.io/img/2021-12-03-united-nations-and-china/1.jpg)
+
+![](https://LEGION-GREEN.github.io/img/2021-12-03-united-nations-and-china/2.jpg)
+
+![](https://LEGION-GREEN.github.io/img/2021-12-03-united-nations-and-china/3.jpg)
+
+![](https://LEGION-GREEN.github.io/img/2021-12-03-united-nations-and-china/4.jpg)
+
+![](https://LEGION-GREEN.github.io/img/2021-12-03-united-nations-and-china/5.jpg)
+
+![](https://LEGION-GREEN.github.io/img/2021-12-03-united-nations-and-china/6.jpg)
+
+![](https://LEGION-GREEN.github.io/img/2021-12-03-united-nations-and-china/7.jpg)
+
+![](https://LEGION-GREEN.github.io/img/2021-12-03-united-nations-and-china/8.jpg)
+
+
+
 ## Questions
 
 1. what's your opinion on China-Africa cooperation? in your opinion in which aspect should we cooperate more
